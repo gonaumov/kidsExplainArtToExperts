@@ -31,7 +31,7 @@ really suprised me. Even Shana decided that this was something
 non age-apropriate. Here I will try to describe The Birth of Venus 
 by Sandro Botticelli. The picture displays a bay. Just near the 
 shoreline is Venus - nude and only her hair is hidding some places
-of her body. Venus is uprightiing in a mussel shell. From the right side
+of her body. Venus is standing upright in a mussel shell. From the right side
 there is a woman which is dressed in old victorian fashion. The woman 
 gives a cloack to Venus. From the left side there are angels who are 
 flying dropping flowers on Venus. 
